@@ -1,16 +1,15 @@
 # hello *!*
-> she/her • intj  • minor
+> she/her • intj
 
-i'm hua! ^..^
+i'm hua
 i like drawing and coding for fun. 
 
-- kind of new at coding ._. still only know basics
+- new to coding, still learning
 - currently, i'm working on a discord bot for friend
 - currently learning js and css
-- contact me through my discord, `huaawen`
 
 
-> more info in my carrd:
+> more info:
 > https://huaawen.carrd.co/
 
 ･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ 
